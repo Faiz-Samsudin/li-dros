@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @li-dros
+- 👀 I’m interested in CS industry
+- 🌱 I’m currently learning Information Systems in local university
+- 💞️ I’m looking to collaborate on small humble project
+- 📫 How to reach me ... can email me?
